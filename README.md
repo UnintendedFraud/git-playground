@@ -10,3 +10,5 @@ everyone should watch it. It feels good to watch a movie that is not 3 years lon
 ## Why dota 2 is best?
 
 It just is, try it, love it, play it. Easy.
+ 
+I believe `Avatar` should have win best picture. What a great movie.
