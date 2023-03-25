@@ -11,4 +11,9 @@ everyone should watch it. It feels good to watch a movie that is not 3 years lon
 
 It just is, try it, love it, play it. Easy.
  
-I believe `Avatar` should have win best picture. What a great movie.
+I believe `All quiet on the western front` should have win best picture. What a great movie. Can't even spell the
+name properly.
+
+## CS2
+
+New smoke: good or bad?
